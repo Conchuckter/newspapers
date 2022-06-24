@@ -1,7 +1,7 @@
 
 # THE DAILY HAROLD: BRUTAL ATTACK!
 
-#### In this issue of the daily Harold I will be recounting the story of how I was brutally assaulted by a so called "head", I will be going to fine detail so if you are sensitive to any parts of this article feel free to stop reading.
+### In this issue of the daily Harold I will be recounting the story of how I was brutally assaulted by a so called "head", I will be going to fine detail so if you are sensitive to any parts of this article feel free to stop reading.
 
 #### It starts in the NetCafe where I was getting my writing and printing supplies, I saw Freya Pitts and Tavish Finnnegan hacking the AI doors open, this was very suspicious I thought so I started recording. They pried the doors open and stepped inside where they waited at the second set of doors for them to open. Thats when I stepped towards them, they shouted to get out even though they had closed the doors behind me. I was trapped.
 
@@ -9,4 +9,4 @@
 
 #### All I wish to happen is the assaulients to be approprietly punished for their crimes, as a normal crew member. Not a head or a security officer. Just as a normal person. I do hope readers of this issue will help me with this mission, but I wish you all the very best anyhow.
 
-### THE DAILY HAROLD, ISSUE #1
+# #1
